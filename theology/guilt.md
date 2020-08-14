@@ -65,3 +65,8 @@ a mechanism for processing their guilt and bringing it to the Cross.
 I believe that authorities in the Roman Catholic and Anglican Churches need
 to reverse their theological directions and revert to traditional,
 sacrificial celebrations of the Eucharist.
+
+As a bit of a tangent, while I have been pondering these ideas, I have become aware
+that about 80% of discourse in 'news' and 'social' media is about blame. I have
+realised that Christians (including me) need to desist from this. Feelings of blame
+need to be confessed and laid at the altar.
