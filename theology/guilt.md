@@ -37,8 +37,6 @@ large cities across the USA at the moment. Many of the rioters
 and/or protesters are somewhat privileged young people rather than
 genuine black people with genuine grievances.
 
-The scapegoat of the day is "White Privilege".
-
 There is nothing new about scapegoating: it is a persistent factor in human
 nature. However, most cultures in most ages have sought to manage personal
 guilt through the use of _sacrifice_. In the days of King Solomon,
