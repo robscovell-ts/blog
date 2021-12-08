@@ -32,10 +32,7 @@ not reflect their self-image. It can't possibly be something to
 do with them, so someone/something must be at fault.
 
 Scapegoating is _incredibly_ dangerous, especially if it
-is a mass phenomenon, as we are seeing in the riots in various
-large cities across the USA at the moment. Many of the rioters
-and/or protesters are somewhat privileged young people rather than
-genuine black people with genuine grievances.
+is a mass phenomenon, for example in Germany in the 1930s and '40s.
 
 There is nothing new about scapegoating: it is a persistent factor in human
 nature. However, most cultures in most ages have sought to manage personal
